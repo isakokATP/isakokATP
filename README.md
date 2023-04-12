@@ -13,6 +13,8 @@
 
 - Can u call me October <3
 
+- I'm study at SIT.KMUTT
+
 > Contact me more
 
 * FaceBook: shisanucha chengsamo
