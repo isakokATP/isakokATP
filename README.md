@@ -15,6 +15,8 @@
 
 - I'm study at SIT.KMUTT
 
+- I'm always sad boy because im broke.
+
 > Contact me more
 
 * FaceBook: shisanucha chengsamo
