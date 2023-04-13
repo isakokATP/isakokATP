@@ -19,6 +19,7 @@
 
 * FaceBook: shisanucha chengsamo
 * Spotify: ROSE-ISAKOK
+* LinkedIn: https://www.linkedin.com/in/kuhuukee-hc-a2868226b/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
