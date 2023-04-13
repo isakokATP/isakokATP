@@ -6,6 +6,8 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
+> About Me is not about you
+
 - 💬 I can write a **JAVA, HTML, NODEJS**
 
 - 📫 How to reach me **shitsanucha@gmail.com**
