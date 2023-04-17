@@ -7,7 +7,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=isakokatp&label=Profile%20views&color=0e75b6&style=flat" alt="isakokatp" /> </p>
 > About Me is not about you
 
-- 💬 I can write a **JAVA, HTML, NODEJS**
+- 💬 I can write a **JAVA, HTML**
 
 - 📫 How to reach me **shitsanucha@gmail.com**
 
