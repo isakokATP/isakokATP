@@ -8,15 +8,13 @@
 
 > About Me is not about you
 
-- 💬 I can write a **JAVA, HTML**
+- 💬 I can write a **JAVA, HTML** a little bit.
 
 - 📫 How to reach me **shitsanucha@gmail.com**
 
 - Can u call me October <3
 
 - I'm study at SIT.KMUTT
-
-- I'm always sad boy because im broke.
 
 > Contact me more
 
