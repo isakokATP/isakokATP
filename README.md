@@ -3,7 +3,7 @@
 
 <img align="center" width="700" height="400" src="https://media.tenor.com/iNpoS6srIXkAAAAd/waneella-pixel-art.gif">
 <h1 align="center">Hi 👋, I'm Shisanucha Chengsamo or October</h1>
-<h3 align="center">As long as can i breath. I'm still love her.By the way she didn't love me back.🤍</h3>
+<h3 align="center">As long as can i breath. I'm still love her.By the way she didn't love me back.🤍 by the way my name is october. im studying at Kmutt im just a person not good at all but i will do my best way.</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=isakokatp&label=Profile%20views&color=0e75b6&style=flat" alt="isakokatp" /> </p>
 
 > About Me is not about you
